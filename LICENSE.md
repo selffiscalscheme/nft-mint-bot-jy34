@@ -1,4 +1,4 @@
-# 
+# nft mint bot advanced Bot - wash-trading-detection and price-impact-analysis offers the most advanced nft mint bot, with wash-trading-detection and price-impact-analysis. Ideal
 
 
 
